@@ -11,6 +11,7 @@ A Python script to download the top news articles from Aftonbladet (Swedish news
 - Includes source URL for reference
 - Automatic fallback to demo mode if site is not accessible
 - Explicit demo mode for testing
+- **Translation support:** Translate articles to English and Bondska (Swedish rural dialect)
 
 ## Installation
 
@@ -49,6 +50,27 @@ python aftonbladet_scraper.py -d
 
 This creates 10 sample articles to demonstrate the functionality without accessing the live site.
 
+### Translating Articles
+
+Translate all downloaded articles to English and Bondska (Swedish rural dialect):
+
+```bash
+python translate_articles.py
+```
+
+This will:
+1. Read all articles from the `articles/` directory
+2. Translate each article to English and save in `articles_en/`
+3. Translate each article to Bondska and save in `articles_bondska/`
+
+**About Bondska:** Bondska is a Swedish rural dialect/sociolect characterized by traditional Swedish expressions and vocabulary. The translations include dialectal features such as:
+- "ä" instead of "är" (is)
+- "ifrån" instead of "från" (from)
+- "te" instead of "till" (to)
+- "å" instead of "och" (and)
+- "skull" instead of "skulle" (would)
+- Traditional vocabulary like "Svea rike" (Sweden), "allmogen" (common people), "skolväsendet" (school system)
+
 ## Important Notes
 
 ### Geo-blocking and Access Restrictions
@@ -63,14 +85,20 @@ The script will automatically fall back to demo mode if it cannot access the RSS
 
 ## Output
 
-Articles are saved in the `articles/` directory with filenames in the format:
+Articles are saved in multiple directories:
+
+- `articles/` - Original Swedish articles
+- `articles_en/` - English translations
+- `articles_bondska/` - Bondska (rural Swedish dialect) translations
+
+All files use the same naming format:
 ```
 YYYY-MM-DD_article_title.md
 ```
 
 Each Markdown file contains:
 - Article title
-- Download date/time
+- Download/publication dates
 - Source URL
 - Article summary/preview
 - Full article content
