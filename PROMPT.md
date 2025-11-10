@@ -1,0 +1,1 @@
+Extract the text (as Markdown) from the Word document. Create separate file for each chapter. Try to preserve references and text, as written.
