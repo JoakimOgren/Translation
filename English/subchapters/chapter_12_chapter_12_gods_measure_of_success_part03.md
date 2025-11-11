@@ -1,0 +1,10 @@
+## The Measure of a Ministry
+
+After only thirteen years of preaching, Frederick W. Robertson (1816-1853) died, convinced he was a failure. Today, his sermons still in print and his influence incalculable, he is known as the ‘preacher’s preacher.’ Warren Wiersbe suggests that Robertson’s feeling of failure was intensified by his military background that enticed him to expect more definitive victories than preaching usually allows.
+We view Jonah’s ministry as exceptionally successful. Single-handedly, he saved the entire populace of magnificent Nineveh. You’d expect him to be as excited as a centipede at a shoe sale, yet his face was a good imitation of half a squeezed grapefruit. His whole message had been, ‘Yet forty days and Nineveh shall be overthrown.’ Forty days later, Nineveh was celebrating and Jonah was suicidal. The envy of evangelists, perhaps, but as a prophet this man was a write-off.
+ ‘Success’ hinges entirely on the measure used. Genuine success – the synthetic varieties don’t last – is achieving what God expects of us. Only God can measure it. Don’t gauge hurdlers by how high they jump, or pole-vaulters by how fast they run. Judge archers by their accuracy but don’t apply this measure to javelin throwers. If that seems obvious it’s because sport lacks the mystery of real life. In the game of life spectators speculate, the Judge judges.
+Eleven thousand teachers competed with Christa McAuliffe and lost. The winner of a seat on space shuttle Challenger was the envy of millions – until the shuttle disintegrated. Eleven thousand losers suddenly became winners. 
+In the twinkling of an eye, the first shall be last. Until that wondrous moment, don’t assume you’re a loser.
+Many of us are far more successful than we imagine; perhaps more than our humility could handle. It is tragic to find in the body of Christ an ear accused of failure because it cannot see, or an eye that thinks it’s let the body down because it cannot smell. 
+What the world thinks, what other Christians think, what you think, is irrelevant. Nothing matters except God’s approval. It is the sole measure of a ministry.
+

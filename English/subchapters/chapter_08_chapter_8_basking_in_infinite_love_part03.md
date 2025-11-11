@@ -1,0 +1,18 @@
+## The Proof of Love
+
+‘What’s your most important mission?’ a missionary was once asked. 
+‘Submission,’ came the telling reply.
+The key to being mightily used of God tomorrow is to be submitted to him today. Sometimes this can even mean the shelving of ministry aspirations.
+Having stretched his faith, God finally gave Abraham a son. Then came the test. When Abraham was rapt in the joys and duties of parenthood, was the Lord still his first love? Achievements, no matter how magnificent, can never compensate for a decline in spiritual intimacy. Was God still his God, or just a figure-head? Obedience is always better than ‘service’. 
+The Lord asked of Abraham what he has asked of countless people – to relinquish a precious, God-given gift. It always seems a reckless waste, but Father knows best.
+We have discovered that the omnipotent Lord does not need our labor. He can use stones to sing his praises and an ass as his spokesman. He longs for something stones and beasts cannot give – your love. And that means delighting in him more than in ministry.
+Abraham’s ‘ministry’ of fatherhood began before the test. But the order can be reversed. For Peter, Jesus’ probing question, ‘Lovest thou me more than these?’ preceded his command to serve: ‘Feed my sheep.’
+‘Lovest thou me more than these?’ God wants and deserves no rivals in our affections. 
+We can convince ourselves that we crave fruit for the glory of God and yet subconsciously want fruit so we suck it for moisture, rather than going direct to God, our Fountain, to slake our thirst. Our lives will be degraded whenever we turn to a substitute to fill a need that God wants to fill by his very presence. Perhaps we are nervous about such closeness to God, or lack assurance that he is big enough or tangible enough to forever satisfy our thirst for love and significance. Whatever our reason for turning from the ultimate to something inferior, our Lord does not want us missing out.
+‘Lovest thou Me more than these?’ The One who wants us to have the best may decide to withhold ministry until this matter is correctly resolved.
+
+We often focus on the fact that the moment he put his son on the altar, Abraham received him back again. Actually, Abraham’s agony was more prolonged than that. In his mind, Isaac was dead from the time he started his journey to the place of sacrifice, three days earlier. It must have seemed an eternity. Nevertheless, it was not long. Many of us presume from this that after surrendering our vocation it will be speedily returned. But though Abraham had to wait many years for his son’s conception, on this occasion he got off lightly. Our wait may be long.
+We also often imagine that after the initial struggle, obedient sacrifice will flood us with joy and peace. Again, this is not always true.
+A young insurance clerk loved the Lord and loved to sing. Every weekday, he would rise at 5:30 to sing on the local radio station. Evenings were devoted to practice. Then came his big break: a regular spot on national radio at twice his clerk’s wage. Next he learnt he must sometimes sing such words as ‘to hell with Burgundy’. Joy froze. Rather than compromise he refused the offer. With disappointment hanging like a millstone collar, he sank into cold despair. Month after month, depression kept him down.
+Did God honor his sacrifice, or did he remain as blue as a red-blooded white man on a Greenland ice floe? The older generation need only hear his name. In fact, millions need only hear a single note from one of his recordings to know I’m referring to Billy Graham’s famous soloist, George Beverly Shea.
+

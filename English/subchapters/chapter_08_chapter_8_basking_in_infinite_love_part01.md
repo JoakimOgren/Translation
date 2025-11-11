@@ -1,0 +1,18 @@
+# CHAPTER 8: BASKING IN INFINITE LOVE
+
+God’s kingdom, said Jesus, is like a seed that starts small and grows huge. It is hardly surprising, then, that ministries belonging to that kingdom start small, buried, unnoticed. In fact, just about everything our Creator does starts small. Even the Savior of the world began his earthly visit as an embryo hidden in a woman.
+Having established the normality of unspectacular beginnings, we began investigating the reasons you may have not yet experienced the ministry success divinely planned for you. The first possibility we examined is that the Lord could be working to break that natural tendency to spread your trust between various human agencies and God himself. Those stray faith-tentacles still clinging to the finite must be wrenched off and set firmly in the infinite where the rest of your faith is fixed. You can’t blast off into the unknown while clinging to the known.
+That might be what is holding you back, but there are other possibilities.
+
+Anyone who feels slightly worthy of divine love has had no more than a superficial brush with the majestic and holy Lord of heaven and earth. If you are not overawed by the thought that a perfect God could love you, then you are either so jaded to the truth or so infatuated with your self-importance, so blinded to reality, that your need for spiritual revelation is desperate.
+Heaven sometimes withholds ministry opportunities so we may learn it is not our labors or our diligence or our usefulness that makes us precious to God. If your child fell ill and could no longer do her chores, would your love for her diminish? Well, don’t imagine this speck of human love exceeds the love of the Almighty.
+Would you attempt pushing a jumbo jet to help it fly across the Atlantic? That would be wiser than trying to do your bit to help Christ secure your salvation or breach the infinite gulf between who you are and what a person would have to be to merit God’s smile. Anyone foolish enough to keep trying will be left on the runway when departure time arrives. In love, the Lord will not take us far in ministry until this issue is sorted out.
+We often get the salvation part fairly right, yet still imagine we must earn God’s smile by serving him. It’s hard to believe the King of glory would treasure our friendship. Though we keep pushing it down, bobbing close to the surface of our consciousness is the thought, ‘The Lord saved me because of the things I can do for him.’
+The false notion that service could buy God’s approval might heighten motivation, but heaven will not exploit it. Nothing is more important to God than our spiritual well-being.
+They had just brought in the washing when there was a knock on the door. ‘Oh no! The house is in a mess! And just look at me . . .!’ exclaimed Martha.
+‘I’ll get it,’ called Mary. She opened the door and her heart skipped a beat. There was Jesus and all his disciples.
+‘Come in!’ she gushed excitedly. ‘Martha! It’s Jesus!’
+Martha was in a panic. How was she going to feed them all? If only she’d had more warning. She had wanted everything to be so nice for Jesus. ‘Where’s Mary? She’s taking her time!’
+She ran next door to borrow some food. Still no Mary. She stoked the oven and got out the plates. Still no Mary. She peered out and there was Mary sitting at Jesus’ feet with not a care in the world! Martha exploded. Yet it was Mary that the Savior defended.
+I don’t question Martha’s love, but her sister was more perceptive. Mary had discerned that Jesus’ yearning was not primarily to be served. He craved intimacy. Cakes could never taste so good that Jesus considered it worth being robbed of Martha’s presence.
+

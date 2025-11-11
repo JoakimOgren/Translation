@@ -1,0 +1,7 @@
+## The Story So Far
+
+Since our last review we have uncovered another set of hindrances to ministry. If it involved just God and us, ministry would be complex. Yet this is complicated many times over by the involvement of other people and even demonic powers. Nevertheless, every impediment to service will break under the weight of stubborn, faith-filled prayer. It may take days, months or years, but it will happen – provided we don’t let doubt, disobedience or bitterness sap our prayers of power.
+Christians are surrounded by serious problems. For us, problems *have* to be serious – if they smiled we’d see they have no teeth. 
+Spiritually enthroned in heaven with Christ, we have instant access to the Father. Though evil forces of incredible power impinge upon us, resident within us is One greater than the combined forces of hell. So we are never helpless pawns in a battle between spiritual superpowers. And divine omnipotence doesn’t sag when adversaries take human form or merge with psychological factors. The origin of our difficulties may be outside of us, but not, in Christ, outside our sphere of influence. 
+We serve a God in whose presence impossibilities cringe in defeat. Our mighty Lord can manipulate Satan like a puppet. Rest in the love of God, and a hostile world becomes a feather-bed. ‘You meant if for evil, but God meant it for good’ describes every calamity we could ever face. 
+Hold on. Victory is certain.
