@@ -1,0 +1,28 @@
+## Hitta Svar
+
+Så länge Gud, Geniet som leder mitt liv, vet vad han gör, kan jag tolerera att vara förbryllad. Även om han berättade för mig, finns det säkert aspekter av Guds visdom bortom min intellektuella räckvidd. Dessutom kan det vara mörkt i boet eftersom Gud kläcker något. Det kan vara ödmjukhet (bättre att vara ögonbindel av Gud än bländad av arrogans), det kan vara tro eller tålamod, men när Gud håller oss i mörker håller något gott på att kläckas.
+Alltför ofta förblir vi dock okunniga av en mindre djupgående anledning: vi har inte brytt oss om att fråga. Möjligheten att höra från Herren verkar för avlägsen för att motivera ansträngningen av genuin bön.
+Jag är som den förlorade sonens bror i Jesu liknelse. "Fadern ger mig inte ens ett killing", klagar jag nästan, glömmande att vägledning, uppenbarelse – allt Fadern har – är mitt för att be om.
+"Be... sök", sade Jesus. Vågar jag ignorera hans vädjan? Hur annars kan jag veta om jag borde arbeta hårdare eller sova längre; studera teknik eller handarbete; leva av änkors tionden eller försörja mig själv?
+
+När jag gick in på ett kontor för att hämta skräp för makulering såg jag en kvinna som skrev ner detaljerna för ett telefonmeddelande. Hon höll pennan med tårna. De flesta av oss föddes med fötter som det.
+Jag känner en man som ger en imponerande version av *William Tell-övertyr* genom att knacka på tänderna med sina fingernaglar. Vi har tänder som det.
+Allt utom ett uns av vår medfödda potential har förtvinat. Så mycket beror på var vi kanaliserar våra ansträngningar.
+Jag kunde knappast förvänta mig höga prestationer genom att hälla mitt liv i arbete Gud inte har planerat för mig. Och om jag behandlar som en ren sidosyssla vad Gud betraktar som min kallelse, är jag osannolik att vårda det tillräckligt genom bön, tro och övning. Även måttlig framgång skulle vara tveksam.
+Utan ett mål att sikta på är vi mållösa. Det har tagit mig alldeles för lång tid att fatta den enkla logiken. Diskussioner om mål brukade bara deprimera mig eftersom jag inte hade något mål. Nu driver åtminstone den fruktansvärda utsikten om en mållös tillvaro mig att forma ett mål – att söka Gud tills han uppenbarar de mål han vill att jag ska ha. Tills vi åtminstone kan ha ett kortsiktigt mål är vi kraftfulla fordon som varvar i friläge.
+
+Det måste ha sett lustigt ut – Henry Ford attackerade sin arbetsbod med en yxa. Med dörrkarmen i bitar började han på en del av väggen. Henry hade just färdigställt sin första bil. Saker hade gått ganska bra, förutom en detalj. Instängd i hans bod var en bil större än dörren.
+Om vi inte planerar i förväg kan vi hamna i att se lite löjliga ut.
+Vi måste jaga Gud för mål, prioriteringar, riktning.
+Föreställ dig en övergiven sälunge uppfödd i ett hundgård. Se dess uttröttade vaggande; ett patetiskt försök att hålla jämna steg med sina vänner. Den är överträffad i allt – även i svansviftande!
+Ändå, om den bara visste det, är detta tafatta åtlöje förkroppsligandet av grace och skönhet. Släpp denna klumpiga dåre i vatten och förundras. Se dess blixtrande reflexer när den fångar svårfångade fiskar med ren hastighet och intelligens; dyker, hoppar, gör kullerbyttor med häpnadsväckande lätthet.
+Många av oss är sådana. Vi ser hopplösa ut och känner oss hopplösa, helt enkelt för att vi ännu inte har hittat vårt hav.
+
+Det skulle vara anmätsfullt att ta naturlig förmåga, eller en kärlek till en specifik tjänst som avgörande bevis på Guds kallelse. Gud förordnade att endast människor födda i levitfamiljer kunde bli tempelsångare eller musiker. Tror du att i hela Israel älskade endast leviter musik eller hade musikalisk förmåga? Eller föreställer du dig att Gud föraktade alla andras musikaliska gåvor?
+Psalmförfattaren och skicklige violinisten Hugh Haweis skrev, "Musik är inte mitt livs arbete, men det förblir dess ljuvaste rekreation." Han tjänstgjorde som anglikansk präst.
+En hemmafru med en medelmåttig röst beslutade att spela viss kristen musik medan hon arbetade. När hon satte på stereon kände hon att Herren sade, "Du är välsignad när du hör denna musik, men jag är välsignad när du sjunger för mig."
+Vår underbara Herre överöser oss med gåvor, varav några kan vara avsedda endast för privat åtnjutande. Låt oss underskatta varken äran av en privat audiense med skapelsens evige Kung, inte heller den glädje det ger honom. Var inte som Judas som ansåg det vara slöseri när Maria hällde all sin värdefulla parfym på Jesus ensam.
+Även om Gud redan har använt oss i en viss tjänst, skulle det vara kortsiktigt att dra slutsatsen att Herren vill att vi ska förbli i den för livet. Många människor som började som ungdomsarbetare, till exempel, har blivit pastorer. Andra, i motsats till populär hjärntvätt, har funnit sin högsta kallelse först efter att ha lämnat pastoralt arbete. Duane Logsdon vacklade av skuldkänslor när han drog slutsatsen att han var kallad *ut* från en effektiv pastoral tjänst in i affärsvärlden. Det verkade skava, inte bara mot hans uppfostran, utan mot de värderingar han själv passionerat hade predikat. Trots sårade anklagelser underordnade sig Duane Guds kallelse och åstadkom mycket för riket, inklusive att finansiera missioner för miljontals dollar.
+Satan gör allt han kan för att avleda oss från Guds kallelse. En världsberömd evangelist avslöjade i ett seminarium att han hade fått otaliga lockande erbjudanden att engagera sig i undervisning eller pastoralt arbete. Han trodde att ge efter för en sådan begäran skulle avleda honom från den evangelistiska tjänst Gud har valt för honom.
+Att urskilja dina gåvor och upptäcka hur Gud avser att du ska använda dem är ofta svårt, men aldrig omöjligt. Du är på denna planet för ett syfte. Hitta det.
+
