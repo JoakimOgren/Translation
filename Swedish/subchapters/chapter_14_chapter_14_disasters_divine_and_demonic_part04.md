@@ -1,0 +1,7 @@
+## Historien hittills
+
+Sedan vår senaste genomgång har vi upptäckt ytterligare en uppsättning hinder för tjänst. Om det bara handlade om Gud och oss skulle tjänst vara komplex. Men detta är komplicerat många gånger om genom inblandningen av andra människor och till och med demoniska krafter. Likväl kommer varje hinder för tjänst att bryta under vikten av envis, trofylld bön. Det kan ta dagar, månader eller år, men det kommer att hända – förutsatt att vi inte låter tvivel, olydnad eller bitterhet tömma våra böner på kraft.
+Kristna är omgivna av allvarliga problem. För oss måste problem *vara* allvarliga – om de log skulle vi se att de inte har tänder.
+Andligt tronande i himlen med Kristus har vi omedelbar tillgång till Fadern. Även om onda krafter av otrolig makt påverkar oss, bor det inom oss En som är större än helvetets samlade styrkor. Så vi är aldrig hjälplösa bönder i en strid mellan andliga supermakter. Och gudomlig allmakt sviktar inte när motståndare tar mänsklig form eller smälter samman med psykologiska faktorer. Ursprunget till våra svårigheter kan vara utanför oss, men inte, i Kristus, utanför vår influenssfär.
+Vi tjänar en Gud i vars närvaro omöjligheter krymper i nederlag. Vår mäktiga Herre kan manipulera Satan som en marionett. Vila i Guds kärlek, och en fientlig värld blir en fjäderbädd. 'Ni menade det för det onda, men Gud menade det för det goda' beskriver varje olycka vi någonsin kan möta.
+Håll ut. Segern är säker.
