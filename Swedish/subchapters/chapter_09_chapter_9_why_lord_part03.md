@@ -1,0 +1,20 @@
+## Karaktärsutveckling
+
+För att följa i fotspåren av 'Israels ljuvliga psalmist' skulle vi behöva mer än musikaliskt geni. Om vi lade till Davids omfattande teologiska förståelse och andliga insikt, skulle vi fortfarande vara hopplöst bristfälliga.
+Vi skulle behöva matcha hans tålmodiga, förlåtande anda, hans ödmjukhet, tro, intensiva längtan efter Gud, hans begär efter personlig helighet och iver att lyda Herren.
+Även då skulle det finnas en tomhet i våra texter om vi inte delade Davids umbäranden och exponering för fara. Hans lidanden lyfte hans sånger från 'samtida' till tidlösa.
+Enligt Paulus kommer förmågan att tjäna lidande mänsklighet inte från en lärobok utan från svårigheter. Inte ens Guds Son kunde börja sina översteprästerliga plikter förrän han hade genomgått frestelser och lidanden. Principen etablerades långt före Jesu födelse: levitiska präster, även om de var födda för tjänsten och omgivna av den hela sina liv, var tvungna att vänta till sin trettionde födelsedag innan de gick in i prästämbetet. Och principen är fortfarande i kraft: Skriften fastställer att kyrkliga tjänstemän inte får vara nyomvända.
+Kanske har du, liksom jag, avundats människor som på grund av en dramatisk omvändelse eller världslig berömmelse snabbt kastas in i det kristna rampljuset. Att ge en tjänst till en ny kristen är dock som att ge dina bilnycklar till en åttaåring.
+Nicky Cruz berättar om en man född i en drogsäljande familj. Hans omvändelse och efterföljande affärsmässiga framgång förde honom till kändisskap i kristna kretsar. När talarinbjudningarna ökade kände han sig pressad att offra sanningen i sin strävan att tillfredsställa sin spänningssökande publik. Detta bidrog uppenbarligen till att han sökte den grymma trösten av crack. Han blev tragiskt beroende.
+'Jag tackar Gud för att jag slogs ner på en tyst, liten, obskyr plats för att börja min tjänst; för det är vad som fördärvar hälften av er unga män,' sa Alexander Maclaren till präststuderande. 'Ni blir högafflade in i framträdande positioner på en gång, och sedan slösar ni bort er själva i alla möjliga åtaganden som ni kallar plikter... istället för att stanna hemma och läsa era biblar, och komma nära Gud.' Tillade mannen som vördades som en av de största predikanterna någonsin, 'Jag tackar Gud för åren av tidig kamp och obskyritet.'
+
+Kung Rehabeam borde ha lyssnat på sina äldste – män äldre och visare. Istället tog han dåraktigt råden från vänner i sin egen ålder. I Skriftens ord var han 'ung och oerfaren'. Trots allt var han bara fyrtioett år gammal!
+Vi medger gärna ungdomens dårskap – efter att noggrant ha definierat 'ungdom' som en ålder vi har passerat.
+
+I en värld av taggiga människor stack Gerald huvud och taggar över resten. Giftet han spottade skulle sätta eld på ett lik. En kyrkoarbetare inledde ett samtal med honom. Inom fem minuter, erkände han senare, kände han sig som om han ville krossa Geralds huvud.
+Och Don var tvungen att arbeta med den här piraya-munnen. I fem mödosamma år arbetade Don med honom. Gång på gång sprängde den där kanonen av galla Dons självkontroll. Men Don var en kristen. Han bestämde sig för att inte be om att hans plågoare skulle förändras, utan att han själv skulle lära sig kärlek och behärskning över sig själv. I åratal rasade den inre striden. Till slut vann Don igenom. Strax därefter blev han kallad till heltidstjänst.
+Nu en ordinerad pastor som herdar flera hundra människor, ser Don tillbaka bara två eller tre år till tiden för hans kallelse och ser en direkt koppling mellan hans karaktärsutveckling och kallelsen till hans nuvarande tjänst.
+Don är i femtioårsåldern.
+En tidning uttryckte det väl när den talade om en viss kristen konstnär som blev '... en "över natten-succé" efter en tioårig lärlingsperiod...' Gudfruktig karaktär och mogen, effektiv tjänst kommer varken snabbt eller billigt. Men Herren är värd de dyraste offren. Dessutom har han redan deponerat på Golgata det högsta möjliga priset för att säkerställa att du kommer att klara det.
+Ett ogräs kan kulminera på några månader. Ett mäktigt träd kommer verkligen inte göra det. Saker av stort värde produceras sällan snabbt.
+
