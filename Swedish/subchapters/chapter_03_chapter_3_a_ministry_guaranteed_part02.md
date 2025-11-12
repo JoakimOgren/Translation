@@ -1,0 +1,9 @@
+## Känna Sig Värdelös
+
+Skriftens tystnad antyder att Jesus tillbringade större delen av sin tid på jorden med att göra nästan ingenting värt att nämna. Detta intryck förstärks av chocken registrerad i hans gamla bekanta vid trettioåringens under. Ännu mer förvånande är att även hans undervisning och visdom överraskade människor som hade hört honom hela sitt liv. Trettio år! Det är över nittio procent av hans jordiska liv.
+Vågar vi säga att under denna tid var den Suveräne Härlighetens Herre värdelös, eller ett misslyckande? Själva tanken är hädisk! Du vet att Guds Son är av oändligt värde på grund av vem han är, inte för vad han gör.
+Nåväl, kom ihåg att du också är Guds barn. Du har redan uppnått den högsta statusen.
+Verklig betydelse och uppfyllelse kan endast hittas i din förening med Kristus. Att söka dem genom vad du gör är att jaga en ånga. För det första är det en perversion besläktad med föräldrar som ser till sina barn för saker som bara ska hittas i sin äktenskapspartner. För det andra är jordisk tjänst temporal. Kommer du plötsligt att minska i värde när ålder tvingar pensionering på dig? Du skapades för den säkerhet som bara Gud kan erbjuda.
+Att se till något annat än Kristus för vår känsla av värde är som en vanlig människa som gjorts kunglig genom hennes äktenskap med kungen, hoppas att hennes bagateller kommer att göra henne viktig.
+Artister mäter ofta sin framgång genom hur mycket människor betalar för att höra dem. Härlighetens Kung betalade det högsta tänkbara priset – den häpnadsväckande kostnaden för hans Sons liv – bara för att vara nära dig. Det är hur dyrbar du är. Dessutom har han gjort dig arvtagare till himlens rikedomar, ödesbestämd att regera med evig ära. Som Guds arvinge är du av sådan sinnesslående betydelse att ingenting – inte ens den största prestationen – kunde öka din betydelse.
+
